@@ -19,7 +19,7 @@ i put everything, Thanks for playing Iris, but I got tired of doing a Project Sk
 
 SKIDD DISCORD : https://discord.gg/susanoo project susanoo
 
-Not skidd project Velocity discord.gg/velocityfn
+Not skidd project Velocity discord.gg/moonfn
 
 and angels is not a skidd so i dont drop he launcher.
 lapse he just buy the vps lool
