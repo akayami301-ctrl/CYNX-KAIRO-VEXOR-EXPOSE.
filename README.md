@@ -87,6 +87,28 @@ man
 
 he want to create remix because sarah leak everything like gs anticheat etc and he copy the download message He's skidded to that extent.
 
+<img width="106" height="342" alt="image" src="https://github.com/user-attachments/assets/2ab2f2e3-45d8-469f-8168-495ee572190c" />
+
+He used ChatGPT to ask me OGFN questions—which I answered correctly—but then he ghosted me for a day and called me a "skid" without any proof.
+
+<img width="802" height="368" alt="image" src="https://github.com/user-attachments/assets/dfb9ed22-54de-4456-adcd-750cbcc915db" />
+
+lol
+
+<img width="584" height="157" alt="image" src="https://github.com/user-attachments/assets/5e26d67e-d6b1-40d9-a3e9-f2e45f6ce9b7" />
+
+i am sure
+
+<img width="490" height="63" alt="image" src="https://github.com/user-attachments/assets/48512b8b-c127-4d07-bf78-87cd9fc6fc72" />
+
+xD i leak your gameserver and you use lawin...
+
+<img width="615" height="778" alt="image" src="https://github.com/user-attachments/assets/d9170e8a-1089-4dfc-97d5-eb2312f5a828" />
+
+When I ask him questions, he gets stressed and ghosts me—ugh, what a loser.
+
+
+
 
 BONUS !
 The images I'm going to show you aren't mine, but it's to show you who this character is.(you can see OLD LAUNCHER here https://github.com/spectrafnsys/Cynx-Launcher)
