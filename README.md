@@ -11,15 +11,15 @@ GAMESERVER DLL(ERBIUM or another modified)!
 
 THE BACKEND(RELOAD)
 MATCHMAKER(LAWIN)
-if you want the launcher (BIG TROJAN)mp Akayami2901
+if you want the launcher (BIG TROJAN)mp 7u3x
 
 i put everything, Thanks for playing Iris, but I got tired of doing a Project Skid, that's why I'm leaving and going to Lyric.
 
 
 
-SKIDD DISCORD : https://discord.gg/susanoo project susanoo
+SKIDD DISCORD : https://discord.gg/crystalogfn project susanoo
 
-Not skidd project Velocity discord.gg/moonfn
+Not skidd project ... discord.gg/idk i make a new project
 
 and angels is not a skidd so i dont drop he launcher.
 lapse he just buy the vps lool
@@ -34,7 +34,7 @@ sorry my english is bad
 
 credit to 
 
-Akayami2901
+me 7u3x
 elernate180fps
 3xvyy
 
@@ -112,6 +112,10 @@ When I ask him questions, he gets stressed and ghosts me—ugh, what a loser.
 
 ITS RELOAD BACKEND !!!!!!!!!!!
 
+<img width="1915" height="1080" alt="image" src="https://github.com/user-attachments/assets/704369e7-3c48-4b20-977f-ada53fa3a71b" />
+
+
+HE BLOCKED ME (CRYSTAL PROJECT SKIDDING WALLAH)
 
 BONUS !
 The images I'm going to show you aren't mine, but it's to show you who this character is.(you can see OLD LAUNCHER here https://github.com/spectrafnsys/Cynx-Launcher)
