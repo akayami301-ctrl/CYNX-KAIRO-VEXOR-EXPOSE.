@@ -117,6 +117,16 @@ ITS RELOAD BACKEND !!!!!!!!!!!
 
 HE BLOCKED ME (CRYSTAL PROJECT SKIDDING WALLAH)
 
+
+<img width="364" height="180" alt="image" src="https://github.com/user-attachments/assets/2a96b770-c291-42dd-8ef7-bc6e6361709b" />
+<img width="304" height="97" alt="image" src="https://github.com/user-attachments/assets/6d59d715-e6b0-47b3-a09c-266502c79731" />
+<img width="364" height="180" alt="image" src="https://github.com/user-attachments/assets/8a212569-ef42-4050-a86c-9dad214c1002" />
+<img width="726" height="207" alt="image" src="https://github.com/user-attachments/assets/8d293709-9d6a-4cd4-aaa1-2da5c0ed5217" />
+<img width="340" height="137" alt="image" src="https://github.com/user-attachments/assets/c23e9b86-95ab-4be9-bf25-42ed5c73c1c5" />
+CREDIT NAMIKAZEDEV TO GIVE ME THIS LEAK
+**CYNX P3D@PHILE ezzz**
+
+
 BONUS !
 The images I'm going to show you aren't mine, but it's to show you who this character is.(you can see OLD LAUNCHER here https://github.com/spectrafnsys/Cynx-Launcher)
 
