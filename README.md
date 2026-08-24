@@ -1,5 +1,7 @@
 # I PUT EVERYTHING HERE https://gofile.io/d/7CwFm8
 
+# cynx-kairo-vexor-starless-leak-and-expose it's the same person.
+
 Cynx a big skidder ahahahha
 
 He launcher put a trojan, and my friend Elernate(not in project) We decided to give you everything about Project Iris, but now it's Project Phoenix; it's taken over with Remix, the game server, etc. 
