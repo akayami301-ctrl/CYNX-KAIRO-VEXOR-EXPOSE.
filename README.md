@@ -1,6 +1,6 @@
 # I PUT EVERYTHING HERE https://gofile.io/d/7CwFm8
 
-# cynx-kairo-vexor-starless-leak-and-expose it's the same person.
+# cynx-kairo-vexor-starless it's the same person.
 
 Cynx a big skidder ahahahha
 
